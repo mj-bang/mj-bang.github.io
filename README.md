@@ -1,1 +1,0 @@
-# mj-bang.github.io
